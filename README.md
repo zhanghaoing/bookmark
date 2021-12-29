@@ -85,3 +85,12 @@ Clash：https://v1.mk/beQbjei
 3.C1N短链接（*不支持，涉嫌收集用户隐私*）
 
 网址：www.c1n.cn
+
+🏆Telegram语言包🏆
+语言  作者   链接
+
+简中	聪聪	setlanguage/zhcncc
+简中	江湖	setlanguage/jianghu
+简中	moecn	setlanguage/moecn
+繁中	Unknown	setlanguage/hongkong
+繁中	Unknown	setlanguage/taiwan
