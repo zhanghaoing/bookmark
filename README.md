@@ -1,5 +1,5 @@
-首先你先给我去关注@Jsnzkpg和@Wlinkgyjc还有@yigexiequnzu你才可以看这个文章，关注这些频道和群组你再失联那你就确实脑子有点毛病。
-
+帮助难民回家计划
+带慈善家 张浩
 本项目是前免费分享站（目前已经无了） t.me/mffxznews 的站长 @zhanghaoovo 进行维护的
 
 如果您喜欢这个项目，请点击上方的Star~😊
@@ -88,7 +88,7 @@ Clash：https://v1.mk/beQbjei
 
 
 
-🏆难民翻墙的🏆家 
+🏆难民翻墙的家🏆 
 
 张浩 February 09, 2022
 
@@ -134,3 +134,20 @@ EmoVPN（免费&付费套餐制）     yyds.emovpn.top
 
 
 有了翻墙软件没办法用就开全局，只想用特定软件就用规则，啥也不想用就给👴退网吧，你不适合这个
+
+🏆各种翻墙出来需要用到的网址🏆
+
+【Telegram下载】:telegram.org
+
+【Youtube流媒体】:Youtube.com
+
+【Google搜索引擎】:google.com
+
+【Bing搜索引擎】:bing.com
+
+【Google翻译】：https://translate.google.com/
+
+【Google邮箱】：https://gmail.com/
+
+【V2raySe】：https://v2rayse.com/
+
